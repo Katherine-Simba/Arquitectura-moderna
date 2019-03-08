@@ -1,0 +1,2 @@
+# Arquitectura-moderna
+La arquitectura es la responsable de algunos de los lugares más emblemáticos de la Tierra.  Esta ha permitido que el hombre crease sus mejores edificaciones aunando estética y funcionalidad. A lo largo del siglo XX, la arquitectura moderna desarrolló nuevos estilos muy característicos que dio lugar a nuevas construcciones icónicas espectaculares. Ahora queremos seleccionar cinco de estas maravillas de la arquitectura moderna que toda persona debería ver alguna vez en la vida.
